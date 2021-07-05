@@ -1,4 +1,4 @@
-# Lionfish Reef Use
+# Lionfish Reef Use🐠
 
 How do Lionfish partition reef microhabitats? Are they consistent in their space use? Does the presence of other large predators influence this usage? We're interested in examining how these invasive predators use different reef features, with the goal of investigating if this partitioning may be a way that Lionfish and various species of grouper coexist. 
 
